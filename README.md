@@ -1,3 +1,3 @@
 ### Hi :metal:
 
-Usually I create repositories to study. Follow me :blush:
+I usually create repositories to help with studying. Follow me to see my latest ones! :blush:
